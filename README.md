@@ -1,3 +1,5 @@
 i enjoy coding.
 with my friends.
-and we always have fun.
+especiallly if we have snacks around.
+because they keep us engaged.
+and we play a lot of game together.
